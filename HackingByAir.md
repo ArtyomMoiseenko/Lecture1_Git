@@ -8,5 +8,4 @@
 ### Комментарии
 
 >#### Артём
-
 >![Удивление](http://gif.cmtt.space/3/paper-media/ea/04/ee/d2ba84adc70a3c.jpg)
